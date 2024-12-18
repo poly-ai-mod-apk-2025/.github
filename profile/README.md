@@ -5,7 +5,7 @@ Poly.AI Mod APK adalah versi modifikasi dari aplikasi populer **Poly.AI** yang d
 
 Dengan **Poly.AI Mod APK premium unlocked**, Anda dapat menikmati semua fitur premium tanpa biaya tambahan. Aplikasi ini sempurna untuk Anda yang menyukai **AI chatbot customization** dan ingin mengeksplorasi dunia AI yang interaktif.
 
-## Unduh Sekarang:😊 https://heyapks.com/ 
+## Unduh:😊 [Poly.AI APK](https://heyapks.com/poly-ai.html) 
 
 ## Fitur Unggulan Poly.AI Mod APK
 Poly.AI Mod APK menawarkan berbagai fitur canggih yang membuatnya unggul:
